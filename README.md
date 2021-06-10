@@ -5,3 +5,4 @@ A repo for da gaem ;)
 - nie 
 - mam 
 - żadnych
+- TURU TURU TURURURU
